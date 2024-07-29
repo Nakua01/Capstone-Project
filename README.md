@@ -1,0 +1,1 @@
+Cirrus HR Solutions is embarkig on a transformative project to enhance their hiring experience. This initiative helps to streamline customer service operations, reduce response times and improve overall customer satisfacion.
